@@ -1,0 +1,2 @@
+# InviteLinkDiscordJam
+Discordinviterepeatandignore
